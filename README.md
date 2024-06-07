@@ -1,5 +1,5 @@
 2024 Scottish Graduate School of Social Science Summer School, 1100-1300, 10th June 2024, Online
-# Introduction to Complex Surveys Workshop
+# Introduction to Complex Surveys Workshop (Online Version)
 Dr Roxanne Connelly, University of Edinburgh (roxanne.connelly@ed.ac.uk)
 
 
